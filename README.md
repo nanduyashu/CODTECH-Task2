@@ -46,5 +46,4 @@ In summary, Coca-Cola’s Content Marketing Strategy is a masterclass in brand b
 
 *OUTPUT
 
-(https://github.com/user-attachments/assets/a1db4759-0202-4f45-8aa4-607ab56b8999)
-
+![Image](https://github.com/user-attachments/assets/c1e67b5f-f390-4619-8dd6-ebf54b5d874a)
