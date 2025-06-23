@@ -88,4 +88,4 @@ To create a comprehensive, modern content marketing strategy for Coca-Cola that 
 
 *OUTPUT
 
-[CocaCola_30_Day_Social_Media_Calendar.1 (1).xlsx](https://github.com/user-attachments/files/20861471/CocaCola_30_Day_Social_Media_Calendar.1.1.xlsx)
+[Here is a Comprehensive Content Marketing Plan Document tailored specifically for Coca.docx](https://github.com/user-attachments/files/20861524/Here.is.a.Comprehensive.Content.Marketing.Plan.Document.tailored.specifically.for.Coca.docx)
