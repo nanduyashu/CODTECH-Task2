@@ -93,4 +93,4 @@ To conceptualize, structure, and present a detailed content marketing strategy t
 
 *OUTPUT
 
-![Image](https://github.com/user-attachments/assets/feac3fa6-1f69-46c9-a871-79d4674c2431)
+![Image](https://github.com/user-attachments/assets/ee196d19-65fe-453d-87b0-4aca93af7cc5)
