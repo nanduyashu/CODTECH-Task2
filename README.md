@@ -71,7 +71,7 @@ To conceptualize, structure, and present a detailed content marketing strategy t
    * +30% blog traffic
    * 5% average social media engagement
    * 10M+ hashtag reach
-   * > 90% brand sentiment positivity
+   * Greater than 90% brand sentiment positivity
 
 8. **Campaign Concepts:**
    Proposed three interactive campaigns:
